@@ -11,4 +11,6 @@ I took virtual classes which was very new and interesting<BR>
 I ended my year with highest grades I have ever gotten since middle school<BR>
   <BR>
 I won first place in a chinese chess competition<BR>
-I achieved the grade I wanted for highschool
+I achieved the grade I wanted for highschool<BR>
+<BR>
+Social media links can be found at the bottom of the page
